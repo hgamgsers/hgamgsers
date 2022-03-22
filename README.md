@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @hgamgsers
+- 👀 I’m interested in gaming of course
+- 🌱 I’m currently learning html for now
